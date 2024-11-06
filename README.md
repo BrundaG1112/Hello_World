@@ -4,7 +4,7 @@ My name is Sarah!
 
 📚 I have written a number of papers and books around technical and educational topics. Check out all of my books here.
 
-📫 How to reach me:
+📫 How to reach me
 
 😛
 
